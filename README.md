@@ -6,5 +6,5 @@ Unfortunately the tool is private for the time being, but you can still access t
 
 <br>
 <h1>DISCORD</h1>
-<a href="T8FzpvJABf">➡️ Join </a>
+<a href="https://discord.gg/T8FzpvJABf">➡️ Join </a>
 
